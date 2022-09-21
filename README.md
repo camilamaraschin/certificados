@@ -12,3 +12,6 @@
 ![image](https://user-images.githubusercontent.com/105385268/190373163-ec831f41-62cd-425c-a9ad-e27a8ade3462.png)
 
 
+
+[Soft Skills - Certificado StartSe](https://user-images.githubusercontent.com/105385268/191513239-7fbcf0e0-02f4-4fc4-9ee2-36d9833fbe40.png)<br>
+![Soft Skills - StartSe](https://user-images.githubusercontent.com/105385268/191513239-7fbcf0e0-02f4-4fc4-9ee2-36d9833fbe40.png)
