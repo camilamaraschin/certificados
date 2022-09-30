@@ -15,3 +15,6 @@
 
 [Soft Skills - Certificado StartSe](https://user-images.githubusercontent.com/105385268/191513239-7fbcf0e0-02f4-4fc4-9ee2-36d9833fbe40.png)<br>
 ![Soft Skills - StartSe](https://user-images.githubusercontent.com/105385268/191513239-7fbcf0e0-02f4-4fc4-9ee2-36d9833fbe40.png)
+
+[Workshop Figma](https://user-images.githubusercontent.com/105385268/193334760-bbecd9ab-7c17-4bb1-b496-8b7b09b8c983.png)
+![Workshop Figma](https://user-images.githubusercontent.com/105385268/193334760-bbecd9ab-7c17-4bb1-b496-8b7b09b8c983.png)
